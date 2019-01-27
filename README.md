@@ -1,2 +1,2 @@
-# lajston.github.io
+# KOSHATNIK.RU
 Необязательно
